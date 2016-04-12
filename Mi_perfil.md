@@ -5,12 +5,12 @@
 * **Direccion:** Zona 16, Guatemala
 * **E-mail:** ccoju@ufm.edu
 * **Estatura:** 1.90 m
-* **Estado Emocional:** Estable (psicopata, esclerosis multiple)
+* **Estado Emocional:** Estable 
 
 ##Redes Sociales
 * **Facebook:** [Ceci Cojulun] (https://www.facebook.com/ceci.cojulun)
 * **Instagram:** cecicoju
 
 ## Bio
-Estudiante de Ingeniería Empresarial de la Universidad Francisco Marroquín. una personalidad inestable, con serios problemas mentales. Potencialmente dañina. Su poder es convertirse en mono
+Estudiante de Ingeniería Empresarial de la Universidad Francisco Marroquín. 
 
